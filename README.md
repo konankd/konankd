@@ -20,4 +20,4 @@ Cross-functional Collaboration with HR, IT, and Payroll
 
 Whether you're looking to collaborate on Workday solutions, discuss process improvement strategies, or just connect over shared interests in HR technology—I’d love to chat!
 
-Feel free to reach out via email at konank.divya@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/divyakonanki/). Let's embark on a data-driven journey together!
+Feel free to reach out via email at divya.konanki09@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/divyakonanki/). Let's embark on a data-driven journey together!
